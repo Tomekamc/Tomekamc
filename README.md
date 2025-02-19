@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on getting the syntax down
 - 📫 How to reach me serenityequalstardis@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I want to know what the color 9 taste like 
+- ⚡ Fun fact:  I love to cook
 
 <!---
 Tomekamc/Tomekamc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
